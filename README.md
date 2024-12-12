@@ -1,2 +1,2 @@
-# Viickystarq
+# Vickystarq
 Hi there!! 
